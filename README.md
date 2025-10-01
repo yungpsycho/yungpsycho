@@ -6,9 +6,11 @@
 
 <br>
 <br>  
-
-[![᲼](https://i.imgur.com/fRZFh6L.png)](<https://discord.com/users/1242188374165426426>)<br>
-
+<br>
+<br>
+<br>
+<br>
+<br>
 <br>
 <br>
 <br>
@@ -28,6 +30,9 @@
 
 </h1>
 
+<br>
+<br>
+<br>
 <br>
 <br>
 <br>
