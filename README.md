@@ -51,7 +51,7 @@
 <br>
 
 <h1 align="center">
- Don't be afraid, if you want to leave, don't let me get in your way
+ Only thing i fear is you breakin' my heart (yeah)
 </h1>
 
 <br>
@@ -68,15 +68,15 @@
 <br>
 
 <h1 align="center">
-  ⚠ 𝐀 𝐆𝐑𝐄𝐀𝐓 𝐂𝐇𝐀𝐎𝐒 ⚠
+  ⚠ 𝐌𝐎𝐑𝐄 𝐂𝐇𝐀𝐎𝐒 ⚠
 </h1> 
 <br>
 
 <h1 align="center">
-  Yeah, this Song is still on repeat and will continue to be on repeat !
+  Yea, this Song is still on repeat and will continue to be on repeat !
 </h1> 
 
-[![SUCCUBUS](https://i.imgur.com/6ky2Cyb.png)](https://soundcloud.com/kencarson/succubus)
+[![THX](https://i.imgur.com/go0w2JF.png)](https://soundcloud.com/kencarson/thx)
 
 # 💫 About Me:
 <br>
@@ -85,7 +85,7 @@
  
 * 🎧 I'm Addicted To Music
 * 🔒 I Love Unreleased Songs
-* 🤍 Fav Song: [Succubus - Ken Carson](https://soundcloud.com/kencarson/succubus)
+* 🤍 Fav Song: [Thx - Ken Carson](https://soundcloud.com/kencarson/thx)
 * 🎮 I Love Playing [Video games](https://steamcommunity.com/profiles/76561199014072673/games/?tab=all)
 * 💻 I Like Modding Stuff
 * 🤍 Fav Artists: [KenCarson](https://soundcloud.com/kencarson?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[DonToliver](https://soundcloud.com/dontoliver?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[Destroylonely](https://soundcloud.com/destroylonely?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[PlayboiCarti](https://soundcloud.com/playboicarti?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[22francc](https://soundcloud.com/22francc?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[JuiceWrld](https://soundcloud.com/uiceheidd?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[Yeat](https://soundcloud.com/lilyeat?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[XXXTENTACION](https://soundcloud.com/jahseh-onfroy?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[LilPeep](https://soundcloud.com/lil_peep?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[Pi'erreBourne](https://soundcloud.com/pierrebourne?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)
