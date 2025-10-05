@@ -76,7 +76,7 @@
   Yea, this Song is still on repeat and will continue to be on repeat !
 </h1> 
 
-[![THX](https://i.imgur.com/go0w2JF.png)](https://soundcloud.com/kencarson/thx)
+[![THX](https://i.imgur.com/4jkHqkF.png)](https://soundcloud.com/kencarson/thx)
 
 # 💫 About Me:
 <br>
