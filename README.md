@@ -78,7 +78,9 @@
 
 [![THX](https://i.imgur.com/4jkHqkF.png)](https://soundcloud.com/kencarson/thx)
 
-# 💫 About Me:
+<h1 align="center">
+  💫 About Me 💫
+</h1> 
 <br>
 <br>
 <br>
@@ -104,12 +106,12 @@
 <h1 align="center">
 <!-- BEGIN SOUNDCLOUD-CARDS -->
 
-[<img src="https://i.imgur.com/XOxfjJn.png" alt="Ken Carson Unreleased" title="My Top 1 Unreleased Playlist">](https://soundcloud.com/symbiotchaoss/sets/ken-carson-unreleased/s-AcNkxB0uzHi?si=b41cfcb5b94c4c4dac8f5091a3203985&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)
-[<img src="https://i.imgur.com/EjaF4pb.png" alt="Playboi Carti Unreleased" title="My Top 2 Unreleased Playlist">](https://soundcloud.com/symbiotchaoss/sets/ken-carson-unreleased/s-AcNkxB0uzHi?si=b41cfcb5b94c4c4dac8f5091a3203985&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)
-[<img src="https://i.imgur.com/3qlGOoM.png" alt="Destroylonely Unreleased" title="My Top 3 Unreleased Playlist">](https://soundcloud.com/symbiotchaoss/sets/ken-carson-unreleased/s-AcNkxB0uzHi?si=b41cfcb5b94c4c4dac8f5091a3203985&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)
-[<img src="https://i.imgur.com/TMLgCU8.png" alt="Juice WRLD Unreleased" title="My Top 4 Unreleased Playlist">](https://soundcloud.com/symbiotchaoss/sets/ken-carson-unreleased/s-AcNkxB0uzHi?si=b41cfcb5b94c4c4dac8f5091a3203985&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)
-[<img src="https://i.imgur.com/iw4X9YH.png" alt="Don Toliver Unreleased" title="My Top 5 Unreleased Playlist">](https://soundcloud.com/symbiotchaoss/sets/ken-carson-unreleased/s-AcNkxB0uzHi?si=b41cfcb5b94c4c4dac8f5091a3203985&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)
-[<img src="https://i.imgur.com/x0e8cS0.png" alt="Lil Peep Unreleased" title="My Top 6 Unreleased Playlist">](https://soundcloud.com/symbiotchaoss/sets/ken-carson-unreleased/s-AcNkxB0uzHi?si=b41cfcb5b94c4c4dac8f5091a3203985&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)
+[<img src="https://i.imgur.com/waAYkq8.jpeg" alt="Ken Carson Unreleased" title="My Top 1 Unreleased Playlist">](https://soundcloud.com/symbiotchaoss/sets/ken-carson-unreleased/s-AcNkxB0uzHi?si=b41cfcb5b94c4c4dac8f5091a3203985&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)
+[<img src="https://i.imgur.com/tdPZNI2.jpeg" alt="Playboi Carti Unreleased" title="My Top 2 Unreleased Playlist">](https://soundcloud.com/symbiotchaoss/sets/ken-carson-unreleased/s-AcNkxB0uzHi?si=b41cfcb5b94c4c4dac8f5091a3203985&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)
+[<img src="https://i.imgur.com/wCNYPn7.jpeg" alt="Destroylonely Unreleased" title="My Top 3 Unreleased Playlist">](https://soundcloud.com/symbiotchaoss/sets/ken-carson-unreleased/s-AcNkxB0uzHi?si=b41cfcb5b94c4c4dac8f5091a3203985&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)
+[<img src="https://i.imgur.com/74tM4tu.jpeg" alt="Juice WRLD Unreleased" title="My Top 4 Unreleased Playlist">](https://soundcloud.com/symbiotchaoss/sets/ken-carson-unreleased/s-AcNkxB0uzHi?si=b41cfcb5b94c4c4dac8f5091a3203985&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)
+[<img src="https://i.imgur.com/sWgVp8q.jpeg" alt="Don Toliver Unreleased" title="My Top 5 Unreleased Playlist">](https://soundcloud.com/symbiotchaoss/sets/ken-carson-unreleased/s-AcNkxB0uzHi?si=b41cfcb5b94c4c4dac8f5091a3203985&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)
+[<img src="https://i.imgur.com/JO5Kdkg.jpeg" alt="Lil Peep Unreleased" title="My Top 6 Unreleased Playlist">](https://soundcloud.com/symbiotchaoss/sets/ken-carson-unreleased/s-AcNkxB0uzHi?si=b41cfcb5b94c4c4dac8f5091a3203985&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)
 <!-- END SOUNDCLOUD-CARDS -->
 </h1>
 
