@@ -68,15 +68,40 @@
 <br>
 
 <h1 align="center">
-  ⚠ 𝐌𝐎𝐑𝐄 𝐂𝐇𝐀𝐎𝐒 ⚠
+<a href="https://soundcloud.com/kencarson/sets/more-chaos-8" target="_blank">
+<img src="https://i.imgur.com/kt4IAz1.png" width="75" height="75" alt="More Chaos">
+</a>᲼᲼᲼᲼
+	᲼ᴍᴏʀᴇ ᴄʜᴀᴏꜱ᲼᲼᲼᲼᲼
+<a href="https://soundcloud.com/kencarson/sets/more-chaos-8" target="_blank">
+<img src="https://i.imgur.com/kt4IAz1.png" width="75" height="75" alt="More Chaos">
+</a>
 </h1> 
+<br>
+<br>
+<br>
+<br>
 <br>
 
 <h1 align="center">
   Yea, this Song is still on repeat and will continue to be on repeat !
 </h1> 
 
-[![THX](https://i.imgur.com/4jkHqkF.png)](https://soundcloud.com/kencarson/thx)
+[![Thx](https://i.imgur.com/4jkHqkF.png)](https://soundcloud.com/kencarson/thx)
+
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
 
 <h1 align="center">
   💫 About Me 💫
@@ -92,7 +117,7 @@
 * 💻 I Like Modding Stuff
 * 🤍 Fav Artists: [KenCarson](https://soundcloud.com/kencarson?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[DonToliver](https://soundcloud.com/dontoliver?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[Destroylonely](https://soundcloud.com/destroylonely?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[PlayboiCarti](https://soundcloud.com/playboicarti?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[22francc](https://soundcloud.com/22francc?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[JuiceWrld](https://soundcloud.com/uiceheidd?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[Yeat](https://soundcloud.com/lilyeat?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[XXXTENTACION](https://soundcloud.com/jahseh-onfroy?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[LilPeep](https://soundcloud.com/lil_peep?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[Pi'erreBourne](https://soundcloud.com/pierrebourne?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)
 * 🎥 I Like Movies
-* 🎞️ Fav Movie: [Look Killa](https://www.imdb.com/title/tt27692178)
+* 🎞️ Fav Movie: [Look Killa](https://www.imdb.com/title/tt27692178), [Scream VI](https://www.imdb.com/title/tt17663992)
 * 🐈 I Like cats
 * 🗣️ I Speak German/English
 </h1>
