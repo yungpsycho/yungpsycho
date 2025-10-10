@@ -1,8 +1,14 @@
 
 
 <h1 align="center">
-  👋 𝐖𝐞𝐥𝐜𝐨𝐦𝐞 𝐓𝐨 𝐌𝐲 𝐏𝐫𝐨𝐟𝐢𝐥𝐞 !
-</h1>
+<a href="https://soundcloud.com/kencarson/sets/a-great-chaos-deluxe-1" target="_blank">
+<img src="https://i.imgur.com/jvzXmFR.png" width="75" height="95" alt="Mewtwo">
+</a>᲼᲼᲼᲼
+	᲼𝐖𝐞𝐥𝐜𝐨𝐦𝐞 𝐓𝐨 𝐌𝐲 𝐏𝐫𝐨𝐟𝐢𝐥𝐞 ᲼᲼᲼᲼᲼
+<a href="https://soundcloud.com/kencarson/sets/a-great-chaos-deluxe-1" target="_blank">
+<img src="https://i.imgur.com/PlyylZe.png" width="75" height="95" alt="Mewtwo">
+</a>
+</h1> 
 
 <br>
 <br>  
@@ -69,11 +75,11 @@ I caught her like a Pokémon, my b!tch built like Mewtwo
 
 <h1 align="center">
 <a href="https://soundcloud.com/kencarson/sets/a-great-chaos-deluxe-1" target="_blank">
-<img src="https://i.imgur.com/23qVbx4.png" width="75" height="75" alt="Mewtwo">
+<img src="https://i.imgur.com/vsDCOKi.png" width="75" height="75" alt="Mewtwo">
 </a>᲼᲼᲼᲼
 	᲼𝐀 𝐆𝐫𝐞𝐚𝐭 𝐂𝐡𝐚𝐨𝐬᲼᲼᲼᲼᲼
 <a href="https://soundcloud.com/kencarson/sets/a-great-chaos-deluxe-1" target="_blank">
-<img src="https://i.imgur.com/jj7Y2iG.png" width="75" height="75" alt="Mewtwo">
+<img src="https://i.imgur.com/T5kYbVo.png" width="75" height="75" alt="Mewtwo">
 </a>
 </h1> 
 <br>
