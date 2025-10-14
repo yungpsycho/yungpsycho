@@ -2,11 +2,11 @@
 
 <h1 align="center">
 <a href="https://soundcloud.com/kencarson/sets/a-great-chaos-deluxe-1" target="_blank">
-<img src="https://i.imgur.com/jvzXmFR.png" width="75" height="95" alt="Mewtwo">
+<img src="https://i.imgur.com/AfgmlvR.png" width="75" height="95" alt="Rose">
 </a>᲼᲼᲼᲼
 	᲼𝐖𝐞𝐥𝐜𝐨𝐦𝐞 𝐓𝐨 𝐌𝐲 𝐏𝐫𝐨𝐟𝐢𝐥𝐞 ᲼᲼᲼᲼᲼
 <a href="https://soundcloud.com/kencarson/sets/a-great-chaos-deluxe-1" target="_blank">
-<img src="https://i.imgur.com/PlyylZe.png" width="75" height="95" alt="Mewtwo">
+<img src="https://i.imgur.com/AfgmlvR.png" width="75" height="95" alt="Rose">
 </a>
 </h1> 
 
@@ -57,7 +57,7 @@
 <br>
 
 <h1 align="center">
-I caught her like a Pokémon, my b!tch built like Mewtwo
+More chaos for these h0es
 </h1>
 
 <br>
@@ -75,11 +75,11 @@ I caught her like a Pokémon, my b!tch built like Mewtwo
 
 <h1 align="center">
 <a href="https://soundcloud.com/kencarson/sets/a-great-chaos-deluxe-1" target="_blank">
-<img src="https://i.imgur.com/vsDCOKi.png" width="75" height="75" alt="Mewtwo">
+<img src="https://i.imgur.com/rzE6csQ.png" width="75" height="75" alt="More Chaos">
 </a>᲼᲼᲼᲼
 	᲼𝐀 𝐆𝐫𝐞𝐚𝐭 𝐂𝐡𝐚𝐨𝐬᲼᲼᲼᲼᲼
 <a href="https://soundcloud.com/kencarson/sets/a-great-chaos-deluxe-1" target="_blank">
-<img src="https://i.imgur.com/T5kYbVo.png" width="75" height="75" alt="Mewtwo">
+<img src="https://i.imgur.com/rzE6csQ.png" width="75" height="75" alt="More Chaos">
 </a>
 </h1> 
 <br>
@@ -92,7 +92,7 @@ I caught her like a Pokémon, my b!tch built like Mewtwo
   Yea, this Song is still on repeat and will continue to be on repeat !
 </h1> 
 
-[![MewTwo](https://i.imgur.com/BUg4oEj.png)](https://soundcloud.com/kencarson/mewtwo)
+[![morechaos](https://i.imgur.com/GSFa5IM.png)](https://soundcloud.com/kencarson/more-chaos)
 
 <br>
 <br>
@@ -109,8 +109,14 @@ I caught her like a Pokémon, my b!tch built like Mewtwo
 <br>
 <br>
 
+<!-- BEGIN ABOUT ME -->
 <h1 align="center">
-  💫 About Me 💫
+<a href="https://soundcloud.com/kencarson/sets/a-great-chaos-deluxe-1" target="_blank">
+<img src="https://i.imgur.com/jKY5hLH.png" width="75" height="75" alt="More Chaos">
+</a>᲼᲼᲼᲼
+	᲼𝐀𝐛𝐨𝐮𝐭 𝐌𝐞᲼᲼᲼᲼᲼
+<a href="https://soundcloud.com/kencarson/sets/a-great-chaos-deluxe-1" target="_blank">
+<img src="https://i.imgur.com/jKY5hLH.png" width="75" height="75" alt="More Chaos">
 </h1> 
 <br>
 <br>
@@ -118,7 +124,7 @@ I caught her like a Pokémon, my b!tch built like Mewtwo
  
 * 🎧 I'm Addicted To Music
 * 🔒 I Love Unreleased Songs
-* 🤍 Fav Song: [Mewtwo - Ken Carson](https://soundcloud.com/kencarson/mewtwo)
+* 🤍 Fav Song: [more chaos - Ken Carson](https://soundcloud.com/kencarson/more-chaos)
 * 🎮 I Love Playing [Video games](https://steamcommunity.com/profiles/76561199014072673/games/?tab=all)
 * 💻 I Like Modding Stuff
 * 🤍 Fav Artists: [KenCarson](https://soundcloud.com/kencarson?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[Destroylonely](https://soundcloud.com/destroylonely?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[PlayboiCarti](https://soundcloud.com/playboicarti?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[DonToliver](https://soundcloud.com/dontoliver?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[22francc](https://soundcloud.com/22francc?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[JuiceWrld](https://soundcloud.com/uiceheidd?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[Yeat](https://soundcloud.com/lilyeat?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[XXXTENTACION](https://soundcloud.com/jahseh-onfroy?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[LilPeep](https://soundcloud.com/lil_peep?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[Pi'erreBourne](https://soundcloud.com/pierrebourne?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)
@@ -126,22 +132,29 @@ I caught her like a Pokémon, my b!tch built like Mewtwo
 * 🎞️ Fav Movie: [Look Killa](https://www.imdb.com/title/tt27692178), [Scream VI](https://www.imdb.com/title/tt17663992)
 * 🐈 I Like cats
 * 🗣️ I Speak German/English
-</h1>
+<!-- END ABOUT ME -->
 
 <br>
 <br>
 <br>
+
 <h1 align="center">
-🎧 𝐓𝐨𝐩 𝟑 𝐅𝐚𝐯𝐨𝐮𝐫𝐢𝐭𝐞 𝐏𝐥𝐚𝐲𝐥𝐢𝐬𝐭𝐬
-</h1>
+<a href="https://soundcloud.com/symbiotchaoss?" target="_blank">
+<img src="https://i.imgur.com/HqYOFEB.png" width="75" height="75" alt="More Chaos">
+</a>᲼᲼᲼᲼
+	᲼𝐌𝐲 𝐅𝐚𝐯 𝐏𝐥𝐚𝐲𝐥𝐢𝐬𝐭𝐬᲼᲼᲼᲼᲼
+<a href="https://soundcloud.com/symbiotchaoss?" target="_blank">
+<img src="https://i.imgur.com/HqYOFEB.png" width="75" height="75" alt="More Chaos">
+</h1> 
+
+<!-- BEGIN SOUNDCLOUD -->
 <h1 align="center">
-<!-- BEGIN SOUNDCLOUD-CARDS -->
-
-[<img src="https://i.imgur.com/waAYkq8.jpeg" alt="Ken Carson Unreleased" title="My Top 1 Unreleased Playlist">](https://soundcloud.com/symbiotchaoss/sets/ken-carson-unreleased/s-AcNkxB0uzHi?si=b41cfcb5b94c4c4dac8f5091a3203985&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)
-[<img src="https://i.imgur.com/wCNYPn7.jpeg" alt="Destroylonely Unreleased" title="My Top 2 Unreleased Playlist">](https://soundcloud.com/symbiotchaoss/sets/ken-carson-unreleased/s-AcNkxB0uzHi?si=b41cfcb5b94c4c4dac8f5091a3203985&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)
-[<img src="https://i.imgur.com/tdPZNI2.jpeg" alt="Playboi Carti Unreleased" title="My Top 3 Unreleased Playlist">](https://soundcloud.com/symbiotchaoss/sets/ken-carson-unreleased/s-AcNkxB0uzHi?si=b41cfcb5b94c4c4dac8f5091a3203985&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)
-
-<!-- END SOUNDCLOUD-CARDS -->
+	
+[<img src="https://i.imgur.com/waAYkq8.jpeg" alt="Ken Carson Unreleased" title="My Top 1 Unreleased Playlist">](https://soundcloud.com/symbiotchaoss/sets/ken-carson-unreleased/s-AcNkxB0uzHi?)
+[<img src="https://i.imgur.com/wCNYPn7.jpeg" alt="Destroylonely Unreleased" title="My Top 2 Unreleased Playlist">](https://soundcloud.com/symbiotchaoss/sets/destroylonely-unreleased/s-j9TSfdDnWdp?)
+[<img src="https://i.imgur.com/tdPZNI2.jpeg" alt="Playboi Carti Unreleased" title="My Top 3 Unreleased Playlist">](https://soundcloud.com/symbiotchaoss/sets/playboi-cari-unreleased/s-f2eofsrRiBp?)
+</h1> 
+<!-- END SOUNDCLOUD -->
 </h1>
 
 <br>
