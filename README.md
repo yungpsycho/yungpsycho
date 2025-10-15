@@ -2,11 +2,11 @@
 
 <h1 align="center">
 <a href="https://soundcloud.com/kencarson/sets/a-great-chaos" target="_blank">
-<img src="https://i.imgur.com/AfgmlvR.png" width="75" height="95" alt="Rose">
+<img src="https://i.imgur.com/tnLqWjT.png" width="75" height="95" alt="Rose">
 </a>᲼᲼᲼᲼
 	᲼𝐖𝐞𝐥𝐜𝐨𝐦𝐞 𝐓𝐨 𝐌𝐲 𝐏𝐫𝐨𝐟𝐢𝐥𝐞 ᲼᲼᲼᲼᲼
 <a href="https://soundcloud.com/kencarson/sets/a-great-chaos" target="_blank">
-<img src="https://i.imgur.com/AfgmlvR.png" width="75" height="95" alt="Rose">
+<img src="https://i.imgur.com/OM2RqJo.png" width="75" height="95" alt="Rose">
 </a>
 </h1> 
 
