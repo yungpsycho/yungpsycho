@@ -1,11 +1,11 @@
 
 
 <h1 align="center">
-<a href="https://soundcloud.com/kencarson/sets/a-great-chaos-deluxe-1" target="_blank">
+<a href="https://soundcloud.com/kencarson/sets/a-great-chaos" target="_blank">
 <img src="https://i.imgur.com/AfgmlvR.png" width="75" height="95" alt="Rose">
 </a>᲼᲼᲼᲼
 	᲼𝐖𝐞𝐥𝐜𝐨𝐦𝐞 𝐓𝐨 𝐌𝐲 𝐏𝐫𝐨𝐟𝐢𝐥𝐞 ᲼᲼᲼᲼᲼
-<a href="https://soundcloud.com/kencarson/sets/a-great-chaos-deluxe-1" target="_blank">
+<a href="https://soundcloud.com/kencarson/sets/a-great-chaos" target="_blank">
 <img src="https://i.imgur.com/AfgmlvR.png" width="75" height="95" alt="Rose">
 </a>
 </h1> 
@@ -74,11 +74,11 @@ More chaos for these h0es
 <br>
 
 <h1 align="center">
-<a href="https://soundcloud.com/kencarson/sets/a-great-chaos-deluxe-1" target="_blank">
+<a href="https://soundcloud.com/kencarson/sets/a-great-chaos" target="_blank">
 <img src="https://i.imgur.com/rzE6csQ.png" width="75" height="75" alt="More Chaos">
 </a>᲼᲼᲼᲼
 	᲼𝐀 𝐆𝐫𝐞𝐚𝐭 𝐂𝐡𝐚𝐨𝐬᲼᲼᲼᲼᲼
-<a href="https://soundcloud.com/kencarson/sets/a-great-chaos-deluxe-1" target="_blank">
+<a href="https://soundcloud.com/kencarson/sets/a-great-chaos" target="_blank">
 <img src="https://i.imgur.com/rzE6csQ.png" width="75" height="75" alt="More Chaos">
 </a>
 </h1> 
@@ -92,7 +92,7 @@ More chaos for these h0es
   Yea, this Song is still on repeat and will continue to be on repeat !
 </h1> 
 
-[![morechaos](https://i.imgur.com/GSFa5IM.png)](https://soundcloud.com/kencarson/more-chaos)
+[![succubus](https://i.imgur.com/6ky2Cyb.png)](https://soundcloud.com/kencarson/succubus)
 
 <br>
 <br>
@@ -111,11 +111,11 @@ More chaos for these h0es
 
 <!-- BEGIN ABOUT ME -->
 <h1 align="center">
-<a href="https://soundcloud.com/kencarson/sets/a-great-chaos-deluxe-1" target="_blank">
+<a href="https://soundcloud.com/kencarson/sets/a-great-chaos" target="_blank">
 <img src="https://i.imgur.com/jKY5hLH.png" width="75" height="75" alt="More Chaos">
 </a>᲼᲼᲼᲼
 	᲼𝐀𝐛𝐨𝐮𝐭 𝐌𝐞᲼᲼᲼᲼᲼
-<a href="https://soundcloud.com/kencarson/sets/a-great-chaos-deluxe-1" target="_blank">
+<a href="https://soundcloud.com/kencarson/sets/a-great-chaos" target="_blank">
 <img src="https://i.imgur.com/jKY5hLH.png" width="75" height="75" alt="More Chaos">
 </h1> 
 <br>
@@ -124,7 +124,7 @@ More chaos for these h0es
  
 * 🎧 I'm Addicted To Music
 * 🔒 I Love Unreleased Songs
-* 🤍 Fav Song: [more chaos - Ken Carson](https://soundcloud.com/kencarson/more-chaos)
+* 🤍 Fav Song: [Succubus - Ken Carson](https://soundcloud.com/kencarson/succubus)
 * 🎮 I Love Playing [Video games](https://steamcommunity.com/profiles/76561199014072673/games/?tab=all)
 * 💻 I Like Modding Stuff
 * 🤍 Fav Artists: [KenCarson](https://soundcloud.com/kencarson?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[Destroylonely](https://soundcloud.com/destroylonely?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[PlayboiCarti](https://soundcloud.com/playboicarti?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[DonToliver](https://soundcloud.com/dontoliver?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[22francc](https://soundcloud.com/22francc?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[JuiceWrld](https://soundcloud.com/uiceheidd?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[Yeat](https://soundcloud.com/lilyeat?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[XXXTENTACION](https://soundcloud.com/jahseh-onfroy?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[LilPeep](https://soundcloud.com/lil_peep?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[Pi'erreBourne](https://soundcloud.com/pierrebourne?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)
