@@ -1,12 +1,12 @@
 
 
 <h1 align="center">
-<a href="https://soundcloud.com/kencarson/sets/a-great-chaos" target="_blank">
-<img src="https://i.imgur.com/tnLqWjT.png" width="75" height="95" alt="Rose">
+<a href="https://soundcloud.com/kencarson/sets/more-chaos-8" target="_blank">
+<img src="https://i.imgur.com/adr4FdB.png" width="75" height="95" alt="Rose">
 </a>᲼᲼᲼᲼
 	᲼𝐖𝐞𝐥𝐜𝐨𝐦𝐞 𝐓𝐨 𝐌𝐲 𝐏𝐫𝐨𝐟𝐢𝐥𝐞 ᲼᲼᲼᲼᲼
-<a href="https://soundcloud.com/kencarson/sets/a-great-chaos" target="_blank">
-<img src="https://i.imgur.com/OM2RqJo.png" width="75" height="95" alt="Rose">
+<a href="https://soundcloud.com/kencarson/sets/more-chaos-8" target="_blank">
+<img src="https://i.imgur.com/adr4FdB.png" width="75" height="95" alt="Rose">
 </a>
 </h1> 
 
@@ -57,7 +57,7 @@
 <br>
 
 <h1 align="center">
-More chaos for these h0es
+Huh, huh, your best wh0re, huh, couldn't compete with mine
 </h1>
 
 <br>
@@ -74,12 +74,12 @@ More chaos for these h0es
 <br>
 
 <h1 align="center">
-<a href="https://soundcloud.com/kencarson/sets/a-great-chaos" target="_blank">
-<img src="https://i.imgur.com/rzE6csQ.png" width="75" height="75" alt="More Chaos">
+<a href="https://soundcloud.com/kencarson/sets/more-chaos-8" target="_blank">
+<img src="https://i.imgur.com/9d6Wyum.png" width="75" height="75" alt="More Chaos">
 </a>᲼᲼᲼᲼
-	᲼𝐀 𝐆𝐫𝐞𝐚𝐭 𝐂𝐡𝐚𝐨𝐬᲼᲼᲼᲼᲼
-<a href="https://soundcloud.com/kencarson/sets/a-great-chaos" target="_blank">
-<img src="https://i.imgur.com/rzE6csQ.png" width="75" height="75" alt="More Chaos">
+	᲼𝐌𝐨𝐫𝐞 𝐂𝐡𝐚𝐨𝐬᲼᲼᲼᲼᲼
+<a href="https://soundcloud.com/kencarson/sets/more-chaos-8" target="_blank">
+<img src="https://i.imgur.com/9d6Wyum.png" width="75" height="75" alt="More Chaos">
 </a>
 </h1> 
 <br>
@@ -92,7 +92,7 @@ More chaos for these h0es
   Yea, this Song is still on repeat and will continue to be on repeat !
 </h1> 
 
-[![succubus](https://i.imgur.com/6ky2Cyb.png)](https://soundcloud.com/kencarson/succubus)
+[![ghoul](https://i.imgur.com/Cdmm4WY.png)](https://soundcloud.com/kencarson/ghoul)
 
 <br>
 <br>
