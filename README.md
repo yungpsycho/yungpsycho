@@ -57,7 +57,7 @@
 <br>
 
 <h1 align="center">
-Huh, huh, your best wh0re, huh, couldn't compete with mine
+Margiela on Margiela, Maison on Maison
 </h1>
 
 <br>
@@ -75,11 +75,11 @@ Huh, huh, your best wh0re, huh, couldn't compete with mine
 
 <h1 align="center">
 <a href="https://soundcloud.com/kencarson/sets/more-chaos-8" target="_blank">
-<img src="https://i.imgur.com/9d6Wyum.png" width="75" height="75" alt="More Chaos">
+<img src="https://i.imgur.com/93IXhgF.png" width="75" height="75" alt="More Chaos">
 </a>᲼᲼᲼᲼
-	᲼𝐌𝐨𝐫𝐞 𝐂𝐡𝐚𝐨𝐬᲼᲼᲼᲼᲼
+	᲼𝐌𝐚𝐫𝐠𝐢𝐞𝐥𝐚᲼᲼᲼᲼᲼
 <a href="https://soundcloud.com/kencarson/sets/more-chaos-8" target="_blank">
-<img src="https://i.imgur.com/9d6Wyum.png" width="75" height="75" alt="More Chaos">
+<img src="https://i.imgur.com/93IXhgF.png" width="75" height="75" alt="More Chaos">
 </a>
 </h1> 
 <br>
@@ -92,7 +92,10 @@ Huh, huh, your best wh0re, huh, couldn't compete with mine
   Yea, this Song is still on repeat and will continue to be on repeat !
 </h1> 
 
-[![ghoul](https://i.imgur.com/Cdmm4WY.png)](https://soundcloud.com/kencarson/ghoul)
+<h1 align="center">
+ 
+[![margiela](https://i.imgur.com/gmWk10P.png)](https://soundcloud.com/frequen666/ken-carson-margiela-hq-remaster)
+</h1> 
 
 <br>
 <br>
@@ -124,7 +127,7 @@ Huh, huh, your best wh0re, huh, couldn't compete with mine
  
 * 🎧 I'm Addicted To Music
 * 🔒 I Love Unreleased Songs
-* 🤍 Fav Song: [Succubus - Ken Carson](https://soundcloud.com/kencarson/succubus)
+* 🤍 Fav Song: [Margiela (Unreleased) - Ken Carson](https://soundcloud.com/frequen666/ken-carson-margiela-hq-remaster)
 * 🎮 I Love Playing [Video games](https://steamcommunity.com/profiles/76561199014072673/games/?tab=all)
 * 💻 I Like Modding Stuff
 * 🤍 Fav Artists: [KenCarson](https://soundcloud.com/kencarson?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[Destroylonely](https://soundcloud.com/destroylonely?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[PlayboiCarti](https://soundcloud.com/playboicarti?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[DonToliver](https://soundcloud.com/dontoliver?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[22francc](https://soundcloud.com/22francc?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[JuiceWrld](https://soundcloud.com/uiceheidd?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[Yeat](https://soundcloud.com/lilyeat?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[XXXTENTACION](https://soundcloud.com/jahseh-onfroy?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[LilPeep](https://soundcloud.com/lil_peep?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)/[Pi'erreBourne](https://soundcloud.com/pierrebourne?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)
