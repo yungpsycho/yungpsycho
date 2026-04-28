@@ -60,12 +60,20 @@ root@dedsec:~$ test_file-F*CKYOU-.txt
 <h3 align="center">> pirating...</h3>
 
 ```bash
-[+] project_01 → Mobile
-[+] project_02 → Computer
-[+] project_03 → Websites
-[+] project_04 → Discord
-[+] project_05 → Steam
-[+] project_06 → Rockstar Games
-[+] project_07 → VideoGames
-[+] project_08 → Soundcloud
-[+] project_09 → Spotify
+[+] project_01 → Video Games (Pc / Console)
+[+] project_02 → Mobile Games
+[+] project_03 → Movies and TV shows
+[+] project_04 → Music and albums
+[+] project_05 → Software
+```
+
+<h1 align="center">[ PROJECT DATABASE ]</h1>
+<h3 align="center">> Modding...</h3>
+
+```bash
+[+] project_01 → Video Games (GTA5, SOTF, ROBLOX, VALORANT...)
+[+] project_02 → Phones (Jailbreak, Custom Ui...)
+[+] project_03 → Pc (Windows / Linux ...)
+[+] project_04 → Discord / Steam / RockstarGames / Epic Games
+[+] project_05 → Denuvo Protection / EAC (Easy Anti-Cheat) / BattlEye ...
+```
