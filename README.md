@@ -56,7 +56,7 @@ root@dedsec:~$ test_file-F*CKYOU-.txt
 </code>
 </pre>
 
-<h1 align="center">[ PROJECT DATABASE ]</h1>
+<h1 align="center">[ 🏴‍☠️ PIRATING 🏴‍☠️ ]</h1>
 <h3 align="center">> pirating...</h3>
 
 ```bash
@@ -67,8 +67,8 @@ root@dedsec:~$ test_file-F*CKYOU-.txt
 [+] project_05 → Software
 ```
 
-<h1 align="center">[ PROJECT DATABASE ]</h1>
-<h3 align="center">> Modding...</h3>
+<h1 align="center">[ 🖥️ MODDING 🛜 ]</h1>
+<h3 align="center">> Modification...</h3>
 
 ```bash
 [+] project_01 → Video Games (GTA5, SOTF, ROBLOX, VALORANT...)
